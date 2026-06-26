@@ -1,4 +1,4 @@
-# 👋 Sawadee Kha! (สวัสดีค่ะ) | I'm Bulkis Rahmatillah
+# 🙏🏻🇹🇭 Sawadee Kha! (สวัสดีค่ะ) | I'm Bulkis Rahmatillah
 
 * **สวัสดีค่ะ** (*Sawasdee Kha*) 
 * **ยินดีที่ได้รู้จักค่ะ** (*Yin-dee thee dai roo-jak kha*) 
